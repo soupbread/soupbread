@@ -1,1 +1,1 @@
-Hello ´･ᴗ･`
+Hello
